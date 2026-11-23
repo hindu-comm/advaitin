@@ -1,0 +1,54 @@
++++
+title = "002 V Subrahmanian"
++++
+[[V Subrahmanian	2024-12-04, 10:42:27 [Source](https://groups.google.com/g/advaitin/c/cwM7jZMIUFs)]]
+
+
+
+This Chandogya 8.3.4 mantra is about the jiva attaining to its true nature:
+
+  
+
+अथ य एष सम्प्रसादोऽस्माच्छरीरात्समुत्थाय परं ज्योतिरुपसम्पद्य स्वेन रूपेणाभिनिष्पद्यत एष आत्मेति होवाचैतदमृतमभयमेतद्ब्रह्मेति तस्य ह वा एतस्य ब्रह्मणो नाम सत्यमिति ॥ ४ ॥
+
+  
+
+स्वरूपावस्थानम् is also termed/meant to be moksha. In Chandogya Bhashya.
+
+  
+
+स्वाभाविकीं ब्रह्मस्वरूपां व्रजेत् ब्रह्मस्वरूपेणावतिष्ठत इत्यर्थः ॥ Mandukya bhashya
+
+  
+
+In the Taittiriya Bhashyam there is the statement of Ananda praapti in this life itself by the Jnani:  
+  
+नासत आनन्दहेतुत्वं दृष्टं लोके । बाह्यानन्दसाधनरहिता अपि अनीहा निरेषणाब्राह्मणाबाह्यरसलाभादिव सानन्दा दृश्यन्ते विद्वांसः ; नूनं ब्रह्मैव रसस्तेषाम् । तस्मादस्ति तत्तेषामानन्दकारणं रसवद्ब्रह्म ।
+
+  
+
+However, in videha mukti it can simply be said that one remains as Brahman. The ananda anubhava is not possible in the absence of the mind apparatus. It is not wrong to also say that mukti is Aatyantika duhkha nivrutti. Here too, in videha mukti this feeling 'I am totally free of all misery' is not possible, for the same reason: no mind apparatus remains there/then.
+
+  
+
+regards
+
+subbu
+
+  
+
+  
+
+>   
+>
+> hari: om !
+>
+> sakshi
+>
+> --  
+> You received this message because you are subscribed to the Google
+> Groups "advaitin" group.  
+> To unsubscribe from this group and stop receiving emails from it, send
+> an email to [advaitin+u...@googlegroups.com]().  
+> To view this discussion visit
+> [https://groups.google.com/d/msgid/advaitin/CADKAaHvSNFR5ph4HTFvg4c2PKBJa-c30JuCAasPJHyAE_gpesg%40mail.gmail.com](https://groups.google.com/d/msgid/advaitin/CADKAaHvSNFR5ph4HTFvg4c2PKBJa-c30JuCAasPJHyAE_gpesg%40mail.gmail.com?utm_medium=email&utm_source=footer).  

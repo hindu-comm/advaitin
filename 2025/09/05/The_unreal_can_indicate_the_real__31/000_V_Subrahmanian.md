@@ -1,0 +1,21 @@
++++
+title = "000 V Subrahmanian"
++++
+[[V Subrahmanian	2025-09-05, 11:49:08 [Source](https://groups.google.com/g/advaitin/c/31lXgaVZ7oU)]]
+
+In the Brahma sutra bhashya 2.1.14, Shankara, while saying that the Veda, though not absolutely real, paramārthika, अत्र वेदा अवेदा (Brihadaranyaka Upanishad 4.3.22) yet can produce un-sublatable result of moksha, through jnanam, gives the analogy of a dream that can indicate a future event in the waking. He also gives the example of scripts that are not absolute yet producing the knowledge of sound that is absolute: तथा अकारादिसत्याक्षरप्रतिपत्तिर्दृष्टारेखानृताक्षरप्रतिपत्तेः ।
+'rekha' = the script written in any language to represent sound. In this short video we see a demonstration of Shankara's statement. In fact even with reference to a single language, we do come across changes in the way a particular script is rendered. We ourselves are witness to such changes in Kannda, Tamil, etc. in our own lifetime.
+
+  
+
+[https://youtube.com/shorts/pKkYQtEqIdI?si=pjJKSZI-H8NoRtWL](https://youtube.com/shorts/pKkYQtEqIdI?si=pjJKSZI-H8NoRtWL)
+
+  
+
+warm regards
+
+subbu  
+
+  
+
+  

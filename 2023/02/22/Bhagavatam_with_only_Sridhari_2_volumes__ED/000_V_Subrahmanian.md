@@ -1,0 +1,15 @@
++++
+title = "000 V Subrahmanian"
++++
+[[V Subrahmanian	2023-02-22, 08:12:46 [Source](https://groups.google.com/g/advaitin/c/EDXCrA-6o48)]]
+
+श्रीमन्महर्षि कृष्णद्वैपायनप्रणीतं  
+  
+श्रीधरस्वामिविरचितभावार्थदीपिकासंवलितं  
+  
+श्रीमद्भागवतमहापुराणम्  
+  
+संस्कृत श्लोक, विस्तृत भूमिका, अन्वय, हिन्दीटीका, श्रीधरस्वामीकृत भावार्थदीपिका संस्कृतटीका, श्रीधरी की हिन्दीव्याख्या एवं अकारादिश्लोकानुक्रमणी सहित सम्पादक एवं हिन्दीटीकाकार-आचार्य शिवप्रसाद द्विवेदी  
+[https://archive.org/details/pdf_Bhagawata_Purana_sridhari_teeka_hindi](https://archive.org/details/pdf_Bhagawata_Purana_sridhari_teeka_hindi)  
+  
+[https://archive.org/details/pdf_bhagawata_purana_sridhari_teeka_hindi_part2/page/n3109/mode/1up](https://archive.org/details/pdf_bhagawata_purana_sridhari_teeka_hindi_part2/page/n3109/mode/1up)  

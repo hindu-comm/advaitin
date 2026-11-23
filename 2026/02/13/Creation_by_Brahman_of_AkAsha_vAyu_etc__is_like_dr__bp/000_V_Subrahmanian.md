@@ -1,0 +1,40 @@
++++
+title = "000 V Subrahmanian"
++++
+[[V Subrahmanian	2026-02-13, 17:11:59 [Source](https://groups.google.com/g/advaitin/c/bpYGVAVZ_CE)]]
+
+In the Gaudapada karika 3.11, there is the reference to the pancha koshas being created as per the Taittiriya Upanishad. The method of teaching the innermost Self, Atman, as per this Upanishad is alluded to here. Shankara, while commenting says: the creation from Brahman-Atman in the sequence of ether, air, fire, etc. and the creation of each of the koshas, gross body, etc. is akin to the **dream creation, the magician's projection and the like.** What is noteworthy is: the Upanishad statement: तस्माद्वाएतस्मादात्मन आकाशः सम्भूतः । आकाशाद्वायुः । वायोरग्निः । अग्नेरापः etc. where the Upanishad specifically says the creation issues forth from Brahman (which does this with due sankalpa, etc. as Sarvajna Ishwara) is explained in the Gaudapada Karika context as being similar to dream, magic, etc. by Shankara. 
+
+  
+
+In the Upanishad commentary Shankara observes:‘तस्माद्वाएतस्मादात्मनः’ इति ब्रह्मण्येव आत्मशब्दप्रयोगात् वेदितुरात्मैव ब्रह्म। Since the Upanishad uses both words Brahman and Atman together, in union, Brahman is the Self of the knower of the Truth being taught there: brahma vit āpnoti param..
+Tattvamasi, Aham Brahmasmi..
+
+  
+
+This is an incontrovertible assertion by Shankara of creation being DSV since the trade-mark of dream and magic, etc. are employed by Shankara.
+From this we conclude, by extension, that for Shankara and Gaudapada, DSV is the default Upanishadic view.  
+
+  
+
+One may read the English translation of the following here:
+
+  
+
+[https://archive.org/details/vYuY_eight-upanishads-with-commentary-of-shankaracharya-vol-2-swami-gambhiranand/page/278/mode/2up](https://archive.org/details/vYuY_eight-upanishads-with-commentary-of-shankaracharya-vol-2-swami-gambhiranand/page/278/mode/2up)
+
+  
+
+सादयो हि ये कोशा व्याख्यातास्तैत्तिरीयके ।
+
+तेषामात्मा परो जीवः खं यथा सम्प्रकाशितः ॥ ११ ॥
+
+उत्पत्त्यादिवर्जितस्याद्वयस्यास्यात्मतत्त्वस्य श्रुतिप्रमाणकत्वप्रदर्शनार्थं वाक्यान्युपन्यस्यन्ते — रसादयः अन्नरसमयः प्राणमय इत्येवमादयः कोशा इव कोशाः अस्यादेः, उत्तरोत्तरापेक्षया बहिर्भावात्पूर्वपूर्वस्य व्याख्याताः विस्पष्टमाख्याताः तैत्तिरीयके तैत्तिरीयकशाखोपनिषद्वल्ल्याम् , तेषां कोशानामात्मा येनात्मना पञ्चापि कोशा आत्मवन्तोऽन्तरतमेन । स हि सर्वेषां जीवननिमित्तत्वाज्जीवः । कोऽसावित्याह — पर एवात्मा यः पूर्वम् ‘सत्यं ज्ञानमनन्तं ब्रह्म’ (तै. उ. २ । १ । १) इति प्रकृतः ; **यस्मादात्मनः स्वप्नमायादिवदाकाशादिक्रमेण रसादयः कोशलक्षणाः सङ्घाता आत्ममायाविसर्जिता इत्युक्तम् ।** स आत्मा अस्माभिः यथा खं तथेति सम्प्रकाशितः, ‘आत्मा ह्याकाशवत्’ (मा. का. ३ । ३) इत्यादिश्लोकैः । न तार्किकपरिकल्पितात्मवत्पुरुषबुद्धिप्रमाणगम्य इत्यभिप्रायः ॥
+
+Om Tat Sat
+
+  
+
+  
+
+  

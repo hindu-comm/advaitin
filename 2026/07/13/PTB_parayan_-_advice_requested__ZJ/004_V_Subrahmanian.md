@@ -1,0 +1,77 @@
++++
+title = "004 V Subrahmanian"
++++
+[[V Subrahmanian	2026-07-13, 23:33:29 [Source](https://groups.google.com/g/advaitin/c/ZJnORg1iOUE)]]
+
+Dear Raghav Ji,
+
+  
+
+I tried a Sutra Bhashya passage:  
+  
+
+कथंपुनःसर्वगतस्यपरमात्मनःपरिमाणोपदेशइत्यत्रब्रूमः—
+
+हृद्यपेक्षया तु मनुष्याधिकारत्वात् ॥ २५ ॥
+
+द्विरूप
+
+सर्वगतस्यापि परमात्मनो हृदयेऽवस्थानमपेक्ष्याङ्गुष्ठमात्रत्वमिदमुच्यते; आकाशस्येव वंशपर्वापेक्षमरत्निमात्रत्वम्। न ह्यञ्जसा अतिमात्रस्य परमात्मनोऽङ्गुष्ठमात्रत्वमुपपद्यते। न चान्यः परमात्मन इह ग्रहणमर्हति ईशानशब्दादिभ्य इत्युक्तम्। ननु प्रतिप्राणिभेदं हृदयानामनवस्थितत्वात्तदपेक्षमप्यङ्गुष्ठमात्रत्वं नोपपद्यत इत्यत उत्तरमुच्यते — मनुष्याधिकारत्वादिति। ‘शास्त्रं ह्यविशेषप्रवृत्तमपि मनुष्यानेवाधिकरोति; शक्तत्वात् , अर्थित्वात् , अपर्युदस्तत्वात् उपनयनादिशास्त्राच्च — इति वर्णितमेतदधिकारलक्षणे’ (जै. सू. ६। १)। मनुष्याणां च नियतपरिमाणः कायः; औचित्येन नियतपरिमाणमेव चैषामङ्गुष्ठमात्रं हृदयम्। अतो मनुष्याधिकारत्वाच्छास्त्रस्य मनुष्यहृदयावस्थानापेक्षमङ्गुष्ठमात्रत्वमुपपन्नं परमात्मनः। यदप्युक्तम् — परिमाणोपदेशात् स्मृतेश्च संसार्येवायमङ्गुष्ठमात्रः प्रत्येतव्य इति; तत्प्रत्युच्यते — ‘स आत्मा तत्त्वमसि’ इत्यादिवत् संसारिण एव सतोऽङ्गुष्ठमात्रस्य ब्रह्मत्वमिदमुपदिश्यत इति।द्विरूपाहि वेदान्तवाक्यानां प्रवृत्तिः — क्वचित्परमात्मस्वरूपनिरूपणपरा; क्वचिद्विज्ञानात्मनः परमात्मैकत्वोपदेशपरा। तदत्र विज्ञानात्मनः परमात्मनैकत्वमुपदिश्यते; नाङ्गुष्ठमात्रत्वं कस्यचित्। एतमेवार्थं परेण स्फुटीकरिष्यति —[‘अङ्गुष्ठमात्रः पुरुषोऽन्तरात्मा सदा जनानां हृदये सन्निविष्टः। तं **स्वा**च्छरीरात्प्रवृहेन्मुञ्जादिवेषीकां धैर्येण। तं विद्याच्छुक्रममृतम्’ (क. उ. २। ३। १७)](https://advaitasharada.sringeri.net/display/bhashya/Kathaka/devanagari?page=2&id=Ka_C02_S03_V17&hl=%E0%A4%85%E0%A4%99%E0%A5%8D%E0%A4%97%E0%A5%81%E0%A4%B7%E0%A5%8D%E0%A4%A0%E0%A4%AE%E0%A4%BE%E0%A4%A4%E0%A5%8D%E0%A4%B0%E0%A4%83%20%E0%A4%AA%E0%A5%81%E0%A4%B0%E0%A5%81%E0%A4%B7%E0%A5%8B%E0%A4%BD%E0%A4%A8%E0%A5%8D%E0%A4%A4%E0%A4%B0%E0%A4%BE%E0%A4%A4%E0%A5%8D%E0%A4%AE%E0%A4%BE%20%E0%A4%B8%E0%A4%A6%E0%A4%BE%20%E0%A4%9C%E0%A4%A8%E0%A4%BE%E0%A4%A8%E0%A4%BE%E0%A4%82%20%E0%A4%B9%E0%A5%83%E0%A4%A6%E0%A4%AF%E0%A5%87%20%E0%A4%B8%E0%A4%A8%E0%A5%8D%E0%A4%A8%E0%A4%BF%E0%A4%B5%E0%A4%BF%E0%A4%B7%E0%A5%8D%E0%A4%9F%E0%A4%83%C2%A0%E0%A5%A4%20%E0%A4%A4%E0%A4%82%20%E0%A4%B8%E0%A5%8D%E0%A4%B5%E0%A4%BE%E0%A4%9A%E0%A5%8D%E0%A4%9B%E0%A4%B0%E0%A5%80%E0%A4%B0%E0%A4%BE%E0%A4%A4%E0%A5%8D%E0%A4%AA%E0%A5%8D%E0%A4%B0%E0%A4%B5%E0%A5%83%E0%A4%B9%E0%A5%87%E0%A4%A8%E0%A5%8D%E0%A4%AE%E0%A5%81%E0%A4%9E%E0%A5%8D%E0%A4%9C%E0%A4%BE%E0%A4%A6%E0%A4%BF%E0%A4%B5%E0%A5%87%E0%A4%B7%E0%A5%80%E0%A4%95%E0%A4%BE%E0%A4%82%20%E0%A4%A7%E0%A5%88%E0%A4%B0%E0%A5%8D%E0%A4%AF%E0%A5%87%E0%A4%A3%C2%A0%E0%A5%A4%20%E0%A4%A4%E0%A4%82%20%E0%A4%B5%E0%A4%BF%E0%A4%A6%E0%A5%8D%E0%A4%AF%E0%A4%BE%E0%A4%9A%E0%A5%8D%E0%A4%9B%E0%A5%81%E0%A4%95%E0%A5%8D%E0%A4%B0%E0%A4%AE%E0%A4%AE%E0%A5%83%E0%A4%A4%E0%A4%AE%E0%A5%8D)इति ॥ २५ ॥
+
+The audio rendering skipped letters in two places, one I have highlighted above. Here's the link to the audio. Please follow closely and point out any other thing that needs repair.
+
+[https://drive.google.com/file/d/1I_wVYCgrUUYJNJcfJFwh9SdljbC8Di5P/view?usp=sharing](https://drive.google.com/file/d/1I_wVYCgrUUYJNJcfJFwh9SdljbC8Di5P/view?usp=sharing)
+
+I don't know if it can be improved.It's nice to hear. The voice sounds like that of Dr. Pratosh, as I have heard him speak at various venues.
+
+I think our people can use this tool by giving ample credit to it.
+
+Warm regards
+
+subbu
+
+  
+
+  
+
+On Mon, Jul 13, 2026 at 10:45 PM Raghav Kumar Dwivedula via Advaita-l \<[adva...@lists.advaita-vedanta.org]()\> wrote:  
+
+> Dear Subbuji  
+> Please see this for what you suggested - AI reading sanskrit prose.  
+>   
+> [https://prathosh.in/vagbodhini/](https://prathosh.in/vagbodhini/)  
+>   
+> I tried it with a few lines from adhyāsa bhāṣya and it seemed to work
+> fine.  
+>   
+> Om  
+> Raghav
+
+
+
+> \>
+> [https://groups.google.com/d/msgid/advaitin/CADKAaHuU35Pb%3DhsAd3eRZEGM3-fgmwvwhPgV-CgAsgSZ4U7zCg%40mail.gmail.com?utm_medium=email&utm_source=footer](https://groups.google.com/d/msgid/advaitin/CADKAaHuU35Pb%3DhsAd3eRZEGM3-fgmwvwhPgV-CgAsgSZ4U7zCg%40mail.gmail.com?utm_medium=email&utm_source=footer)  
+> \> \>  
+> \> \> .  
+> \> \>  
+> \>
+> \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_  
+> \> Archives:
+> [https://lists.advaita-vedanta.org/archives/advaita-l/](https://lists.advaita-vedanta.org/archives/advaita-l/)  
+> \>  
+> \> To unsubscribe or change your options:  
+> \>
+> [https://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l](https://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l)  
+> \>  
+> \> For assistance, contact:  
+> \> [listm...@advaita-vedanta.org]()  
+> \>  
+> \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_  
+> Archives:
+> [https://lists.advaita-vedanta.org/archives/advaita-l/](https://lists.advaita-vedanta.org/archives/advaita-l/)  
+>   
+> To unsubscribe or change your options:  
+> [https://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l](https://lists.advaita-vedanta.org/cgi-bin/listinfo/advaita-l)  
+>   
+> For assistance, contact:  
+> [listm...@advaita-vedanta.org]()  

@@ -1,0 +1,11 @@
++++
+title = "008 karthik o"
++++
+[[karthik o	2020-11-26, 19:36:32 [Source](https://groups.google.com/g/advaitin/c/GBprgU2WP50)]]
+
+Thanks for all your comments. I feel the phrase “The world is Anitya” needs to be properly interpreted. If we say “Kumar is Anitya” we understand only the name and form of Kumar to be Anitya. Atman is in Kumar too and is not Anitya. Similarly when we say “The world is
+Anitya” we understand only the name and form of the world as Anitya. Brahman is in the world too and is not Anitya. Brahman is Sat-Chit-Ananda (Existence-Bliss-limitlessness). If Brahman is not in the world it can no longer be limitless or all-pervasive. The name and form of the world along with Brahman (or Maya Sahitha Brahman) is referred to as Ishwara. With this framework, we can view everything in the world as non-different from Ishwara. We can pray to the Sun God, knowing fully well that the name and form of Sun is Anitya. The book as Saraswathi, different types of wealth as Lakshmi in her 8 forms, Earth as Booma Devi, Health as Parvathi, and so on, i.e. everything as divine even rivers, water, air, etc. This vision of seeing everything as God is unique to the Vedic culture. In other religions, the view is everything is God’s. So, the Vedic view makes God more accessible as opposed to something more abstract sitting in heaven if you may.
+
+This vision of Ishwara also helps deal with various occurrences in the world with the seriousness that they deserve. So, a soldier can take effective steps against the invader, a scientist can put forth his/her best efforts against the Coronavirus, and so on. On the other hand a misinterpretation of the phrase “The world is Anitya” can lead one towards a world-denying attitude. It removes the incentive for individuals to aspire to excel in their field and just do enough to get by for example. So, with the pravritti marga one is to discharge worldly duties to the best of one’s abilities with an attitude of Karma Yoga. The king can still discharge his duties by protecting his subjects from invaders and maintain Dharma as Krishna asked Arjuna to do. In due course, this helps attain a pure mind without binding desires (Raga, dvesas) which is a prerequisite for Jnanam to take place.
+
+

@@ -1,0 +1,8 @@
++++
+title = "001 Ram Chandran"
++++
+[[Ram Chandran	2024-07-22, 00:09:59 [Source](https://groups.google.com/g/advaitin/c/qbEZ1Wcau90)]]
+
+In the book 'Swami Dayananda Saraswati - Contributions and Writings' by Sheela Balaji, there are very deeply moving extracts of Pujya Swami Dayananda ji speaking of Swami Sivananda ji, Swami Chinmayananda ji, Swami Pranavananda ji and Swami Taranananda ji. We reflect on the words of the Guru of Gurus and bow our heads at the feet of the entire Guru parampara, as we approach Guru Purnima. The link to purchase the book - [https://www.avrpt.com/swamis-contribu...](https://www.youtube.com/redirect?event=video_description&redir_token=QUFFLUhqbUxKQ2tGNExpbE9wZzNvYTVpVWdXQTRTZzBTUXxBQ3Jtc0tsV3lvM2V6azYxRUlqSklCYlRRdEFlSXk4czhaWi1zWWJ4RlE3TElCcDN1UEtUbGJpekRtc0hIQUR3U2RZMGxZMXR4Qy1zTXZWaXFvSXNPbWpPZzdzTU5PTHJDTzdSVDhaLVBhNEJsQ0NMRm9jVDkxZw&q=https%3A%2F%2Fwww.avrpt.com%2Fswamis-contributions-writings-limited.htm&v=mVVL3L3dWg8) [\#GuruPurnima](https://www.youtube.com/hashtag/gurupurnima) [\#Guruparampara](https://www.youtube.com/hashtag/guruparampara) [\#SwamiDayanandaSaraswati](https://www.youtube.com/hashtag/swamidayanandasaraswati) [\#SwamiSivanandaji](https://www.youtube.com/hashtag/swamisivanandaji) [\#SwamiChinmayanandaji](https://www.youtube.com/hashtag/swamichinmayanandaji) [\#SwamiPranavanandaji](https://www.youtube.com/hashtag/swamipranavanandaji) [\#SwamiTarananandaji](https://www.youtube.com/hashtag/swamitarananandaji) [\#SwamiDayanandaSaraswatiContributionsandWritingsbySheelaBalaji](https://www.youtube.com/hashtag/swamidayanandasaraswaticontributionsandwritingsbysheelabalaji)
+
+

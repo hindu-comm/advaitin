@@ -1,0 +1,26 @@
++++
+title = "011 H S Chandramouli"
++++
+[[H S Chandramouli	2026-05-13, 14:06:55 [Source](https://groups.google.com/g/advaitin/c/9DIbW6H2lOA)]]
+
+Namaste Sudhanshu Ji,
+
+Reg // I am not saying that these words उत्पत्ति and जनयति literally refer to imagination.
+
+They refer to creation.
+
+However, I am saying that creation is accepted as nothing but imagination in Advaita Vedānta //,
+
+I am not aware of such a statement being admitted in Advaita SiddhAnta, at least as far as the SiddhAnta advanced by Sri Bhagavatpada is concerned. What you have stated practically amounts to selfcontradiction considering the Sanskrit terms used in respect of the same.
+
+Reg // In case of SDV, however, despite the world being imaginary, it is given a higher order than dream world. It is held to be sequential while dream is simultaneous etc //,
+
+Hmm. Gradation in Imagination !!. Never came across such a postulate so far in my studies. Again, in so far as the Advaita SiddhAnta advanced by Sri Bhagavatpada is concerned. It would be good if you can point to any references in this regard, especially in Sanskrit.
+
+However in my understanding the SiddhAnta accepts gradation in असत् ( asat ). There is no gradation in सत् ( sat ). VyAvahArika, PrAtibhAsika and atyanta asat are all different grades of असत् ( asat ) . They refer to different grades of Existence or Creation . Not Imagination.
+
+Reg Sri Anandagiri AcharyAs comment on kArikA 1-7 you have cited, it relates to the view advanced by some thinkers that Dream Creation as well as mAyic Creation are real, as real as the jAgrat Creation. The swa-mata refers to that. It may be pointed out that kArikAs 1-7 to 1-9 list several views advanced by thinkers regarding Creation.
+
+Regards
+
+

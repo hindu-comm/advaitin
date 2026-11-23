@@ -1,0 +1,6 @@
++++
+title = "000 Ram Chandran"
++++
+[[Ram Chandran	2025-06-27, 06:33:51 [Source](https://groups.google.com/g/advaitin/c/BM5zjmecdJU)]]
+
+The BITS community is deeply saddened by the passing of Prof. V. Krishnamurthy, former Deputy Director and Professor of Mathematics at BITS Pilani. Prof. Krishnamurthy was a towering academic and a visionary who helped shape our institution. During his two-decade-long service at BITS, he played a foundational role in introducing academic reforms that have become hallmarks of the BITS model. His contributions went far beyond the classroom — he was a mentor, guide, and source of inspiration for generations of students and faculty alike. A distinguished mathematician, Prof. Krishnamurthy was also a respected national figure — having served as President of the Indian Mathematical Society, UGC National Fellow, and leader of India’s International Mathematical Olympiad team. His scholarly work in Functional Analysis, Topology, and Combinatorics, along with his writings on Indian philosophy and education, reflect the rare depth and range of his intellect. Thefaculty, staff, and students joinhis family and countless others in remembering a life dedicated to knowledge, service, and excellence. His legacy will continue to inspire us.

@@ -1,0 +1,57 @@
++++
+title = "002 V Subrahmanian"
++++
+[[V Subrahmanian	2022-12-07, 22:47:43 [Source](https://groups.google.com/g/advaitin/c/CO3GSdraca0)]]
+
+On Wed, Dec 7, 2022 at 10:16 PM jai1971 \<[jai...@gmail.com]()\> wrote:  
+
+> Namaste,
+>
+>   
+>
+> Hacker may be a scholar but he seems to be wrong in his assertions.
+> Some of these scholars only base their thesis by reading Br Su Bhashya
+> alone. He says Shankara does not use anAdi for avidyA but let me give
+> a few examples -
+>
+>   
+>
+> अनाद्यविद्याप्रसुप्ताः उत्तिष्ठत हे जन्तवः .. जाग्रत अज्ञाननिद्राया घोररूपायाः
+> सर्वानर्थबीजभूतायाः क्षयं कुरुत । Kata Up 1.3.14 Bh  
+> You beings, who are sleeping in ignorance that has no beginning, arise
+> ...awake— put an end to the sleep of ignorance which is terrible by
+> nature and is the seed of all undesirables.  
+>
+>   
+>
+> योऽयं संसारी जीवः, सः उभयलक्षणेन तत्त्वाप्रतिबोधरूपेण बीजात्मना, अन्यथाग्रहणलक्षणेन
+> चानादिकालप्रवृत्तेन *मायाल*क्षणेन स्वापेन mAndUkya kArikA 1.16 Bh  
+>
+> This samsArI jIva who is characterised by both, non-cognition of the
+> reality which is of the nature of a seed and by the cognition of
+> reality differently and by the beginingless activity of sleep
+> characterised as mAyA (avidyA)  
+
+  
+
+The very same examples for the erroneous thinking mentioned by Shankara in the above Karika bhashya -
+
+  
+
+*चानादिकालप्रवृत्तेन मायालक्षणेन* स्वापेन, ममायं पिता पुत्रोऽयं नप्ता क्षेत्रं गृहं पशवः, अहमेषां स्वामी सुखी दुःखी  
+
+  
+
+is stated by him in the Mundaka bhashya below: In the Karika bhashya he called it anaadi maayaa, in the below bhashya he calls it avidya:
+
+#### मुण्डकोपनिषद्भाष्यम्तृतीयं मुण्डकम्प्रथमः खण्डःमन्त्र २- भाष्यम्
+
+………शरीरे पुरुषः भोक्ता जीवो*ऽविद्या*कामकर्मफलरागादिगुरुभाराक्रान्तोऽलाबुरिव सामुद्रे जले निमग्नः निश्चयेन देहात्मभावमापन्नोऽयमेवाहममुष्य पुत्रोऽस्यनप्ताकृशः स्थूलो गुणवान्निर्गुणः सुखी दुःखीत्येवंप्रत्ययो नास्त्यन्योऽस्मादिति जायते म्रियते संयुज्यते………
+
+  
+
+regards
+
+subbu
+
+

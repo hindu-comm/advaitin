@@ -1,0 +1,29 @@
++++
+title = "018 Michael Chandra Cohen"
++++
+[[Michael Chandra Cohen	2026-02-02, 18:49:36 [Source](https://groups.google.com/g/advaitin/c/horjMVvehtQ)]]
+
+Namaste Bhaskarhj, Subbuji and Sudhanshuji,
+
+  
+
+It is not ChatGPT that posts and presents solid refutation of DSV in Sankara bhasya. It is me voicing SSS through Chat. I have reviewed, amended and stand by its propositions..
+
+Impeaching the source and ignoring solid arguments opposed to your position is disingenuous and an ad hominem fallacy.🙏🙏🙏  
+  
+  
+
+  
+
+
+
+
+
+> --  
+> You received this message because you are subscribed to the Google
+> Groups "advaitin" group.  
+> To unsubscribe from this group and stop receiving emails from it, send
+> an email to [advaitin+u...@googlegroups.com]().  
+
+> To view this discussion visit
+> [https://groups.google.com/d/msgid/advaitin/CAH9%3D%2BBA%2BFfNiDBzpofDYO_7SGcTSX-dmqFQUF7aO%3DnFi%3D3R7cA%40mail.gmail.com](https://groups.google.com/d/msgid/advaitin/CAH9%3D%2BBA%2BFfNiDBzpofDYO_7SGcTSX-dmqFQUF7aO%3DnFi%3D3R7cA%40mail.gmail.com?utm_medium=email&utm_source=footer).  

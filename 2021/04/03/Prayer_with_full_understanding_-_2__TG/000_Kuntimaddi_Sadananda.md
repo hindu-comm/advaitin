@@ -1,0 +1,24 @@
++++
+title = "000 Kuntimaddi Sadananda"
++++
+[[Kuntimaddi Sadananda	2021-04-03, 20:20:55 [Source](https://groups.google.com/g/advaitin/c/TGk8sdnlRn8)]]
+
+Here is the second part
+
+--------------------
+
+**Immortality:** *mrutyormaa amrutam gamaya\|* The third part of the prayer says, “Lead us from mortality to immortality.” And there is a problem here too. The very request assumes that we are mortal since we were born at such and such a time and place. The whole *Geetopadesham* started because of Arjuna’s apprehension that he was going to kill his own teachers and grandsires, in whose lap he grew up: *guruunahatvaa hi mahaanubhaavaan shreyobhoktum bhaixya mapeeha loke\|* “It would be better to beg alms and live, rather than kill these great teachers and noble souls.” Hence, like us, Arjuna is aware of our mortality. Krishna confirms this by stating the ‘Law of Eternal-Recycle,’ which follows from the Law of Conservation: That which is born has to die, and that which dies has to be reborn*: jaatasyahi druvo mtuH, druvam janma mrutasya ca\|* Hence, if one considers himself as a mortal, he can never be immortal. On the other hand, if he knows he is immortal – because of the above statement of Krishana (*na tve vaaham ...)* – then the request to “lead us from mortality to immortality” is either impossible, since anything that is born must die; or useless, since it is already an accomplished fact – existence can never cease to exist. Based on this analysis, the third part of the prayer, “*mrutyormaa amrutam gamaya,”* also appears to be in vain.
+
+In the scriptures, a sage calls us, ‘*shrunvantu vishve amrutasya putraaH* – Oh! The sons of immortality’. That is ‘immortality’ is our birthright. Thus, all three requests that we’ve made in our prayer appear to be in vain. If we just repeat the mantras without understanding, like a parrot, then we have no way of knowing even if the Lord grants us our request – because we have no idea what we asked for! In addition, we are making these requests without even knowing whether we are qualified to receive that which we are asking for. It’s as if a child were to go to a university professor and to ask him for knowledge of quantum mechanics, without knowing even what the term means, and without knowing whether he is qualified to receive that knowledge or not. But since these are Upanishadic mantras, there must be a deeper meaning involved.
+
+**The Nature of Knowledge**: Knowledge, *pramaa*, can be known through *pramaaNa* (a means of knowledge) when there is a *pramaata* (knower) and *prameya* (object of knowledge). Normally, I can only have objective knowledge. The means of knowledge are basically three: (1) *pratyaxa* (perceptual); (2) *anumaana* (inferential); and *shabda* (scriptural). The first two are related to *loukika prameyas* (worldly objective knowledge), while the third is *shruti praamaana* (revelatory knowledge) – that is, it is for *aloukika prameyas* (the knowledge of dharma, swarga, naraka, etc.). Any *prameya*, or object of knowledge, can be known only through its attributes or qualities. In fact, the definition of an object is based on its attributes, which differ from those of other objects in the Universe. The senses can only measure these attributes and feed that data to the mind. The mind, in turn, integrates the inputs from the senses and provides an image – superimposing on that image the gathered attributes. The result is expressed as a thought in mind. Thus, a chair “out there” is recognized by its form, color, and other properties as perceived by the senses; and the image of that chair is formed in mind with these attributes. So, the cognitive process involves perception, volition, and cognition. The cognized image with the perceived attributes is next compared with the images stored in our memory. When there is a reasonable match, we “recognize” that this thing out there is a chair.
+
+In reality, however – from the mind’s point of view – the chair out there is only a “chair-thought” in mind’. So, if there is no mind (i.e., if we are asleep or lost in our dreams, etc.), there is no chair out there. Out of mind is out of sight! In fact, the very existence of a chair – or any object for that matter; even the entire world “out there” – cannot be established without the mind, supported by the conscious entity, present. The existence of the world must be proved or established by a conscious entity since the world is *jadam*, or inert, whereas a conscious entity exists independently of the world. The world “out there” is dependent, whereas “I,” i.e., the conscious entity, is an independent entity. In fact, the self-conscious entity alone is a self-existent entity, while the inert entity must always depend on a self-conscious entity for its existence.
+
+To be continued
+
+--------------------
+
+  
+
+  
